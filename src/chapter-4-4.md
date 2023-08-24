@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-=============================================================================
 
 Understanding the power of delegation is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for addressing limiting beliefs that may hinder successful delegation practices.
 

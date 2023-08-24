@@ -1,5 +1,3 @@
-Common Misconceptions About Delegation
-===============================================================
 
 Delegation is a critical skill for effective leadership and team management, but there are many misconceptions about delegation that can hinder its effectiveness. In this chapter, we will explore some common misconceptions about delegation.
 

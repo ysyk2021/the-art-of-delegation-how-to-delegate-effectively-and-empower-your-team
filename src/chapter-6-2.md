@@ -1,5 +1,3 @@
-Developing Strategies for Delegating Effectively and Empowering Your Team
-=======================================================================================================================
 
 Developing your delegation skills is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for developing effective delegation practices that empower your team.
 

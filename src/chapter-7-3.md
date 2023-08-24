@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-=============================================================================
 
 Managing resistance to delegation is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for addressing fear and uncertainty to overcome resistance to delegation.
 

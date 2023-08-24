@@ -1,5 +1,3 @@
-Identifying Delegation Technologies and Resources
-==================================================================================================
 
 Leveraging technology for delegation is becoming increasingly important in today's digital workplace. In this chapter, we will explore strategies for identifying delegation technologies and resources.
 

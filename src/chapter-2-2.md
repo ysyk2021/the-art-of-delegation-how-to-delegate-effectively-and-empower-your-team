@@ -1,5 +1,3 @@
-Understanding the Science Behind Delegation
-===========================================================================
 
 Delegation is a complex process that involves numerous cognitive and behavioral factors. In this chapter, we will explore the science behind delegation and its impact on individuals and organizations.
 

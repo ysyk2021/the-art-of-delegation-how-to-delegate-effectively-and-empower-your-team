@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Delegation
-===============================================
 
 Leveraging technology for delegation is becoming increasingly important in today's digital workplace. In this chapter, we will explore strategies for identifying delegation technologies and resources, using technology to enhance delegation experiences, fostering accessibility and inclusivity, and avoiding information overload.
 

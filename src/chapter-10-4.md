@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 Adapting to changes in the workplace is critical for effective delegation. In this chapter, we will explore strategies for measuring results and learning from experience, including adapting to changes in the workplace.
 

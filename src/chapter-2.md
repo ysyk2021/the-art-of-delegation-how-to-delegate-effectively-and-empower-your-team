@@ -1,5 +1,3 @@
-Chapter 2: Defining Delegation
-==============================
 
 Delegation is a critical skill for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will provide an overview of delegation, explore the science behind delegation, and assess your personal approach to delegation.
 

@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Delegation
-================================================================================================
 
 Developing a delegation mindset is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for developing empathy and compassion through delegation.
 

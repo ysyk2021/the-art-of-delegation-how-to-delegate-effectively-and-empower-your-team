@@ -1,5 +1,3 @@
-Avoiding Information Overload
-==============================================================================
 
 Leveraging technology for delegation is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for avoiding information overload when using technology for delegation.
 

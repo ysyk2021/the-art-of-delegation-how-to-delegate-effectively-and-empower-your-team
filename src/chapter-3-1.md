@@ -1,5 +1,3 @@
-Techniques for Cultivating a Delegation Mindset
-===========================================================================================
 
 Developing a delegation mindset is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore techniques for cultivating a delegation mindset.
 

@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Measuring results and learning from experience is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for tracking progress and measuring results to assess the effectiveness of delegation practices.
 

@@ -1,5 +1,3 @@
-Celebrating Delegation-Based Achievements
-======================================================================================
 
 Creating a culture of delegation is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for celebrating delegation-based achievements as a means to create a culture of delegation.
 

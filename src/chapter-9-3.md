@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-========================================================================================
 
 Leveraging technology for delegation is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for fostering accessibility and inclusivity when using technology for delegation.
 

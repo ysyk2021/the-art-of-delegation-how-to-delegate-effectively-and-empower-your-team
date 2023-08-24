@@ -1,5 +1,3 @@
-Providing Training and Professional Development Opportunities
-==========================================================================================================
 
 Providing training and professional development opportunities is critical for creating a culture of delegation. In this chapter, we will explore strategies for providing training and professional development opportunities that support effective delegation.
 

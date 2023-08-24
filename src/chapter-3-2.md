@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-==========================================================================================
 
 Developing a delegation mindset is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for utilizing positive self-talk and visualization to develop a delegation mindset.
 

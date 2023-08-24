@@ -1,5 +1,3 @@
-Overview of Delegation
-======================================================
 
 Delegation is a critical skill for effective leadership and team management. In this chapter, we will define delegation and provide an overview of its key components.
 

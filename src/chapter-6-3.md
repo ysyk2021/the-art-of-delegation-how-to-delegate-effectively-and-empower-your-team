@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-=============================================================================
 
 Developing your delegation skills is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for utilizing feedback and coaching to develop your delegation skills.
 

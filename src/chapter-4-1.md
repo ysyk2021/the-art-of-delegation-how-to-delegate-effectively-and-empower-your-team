@@ -1,5 +1,3 @@
-The Benefits of Focusing on Delegation
-========================================================================================
 
 Understanding the power of delegation is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore the benefits of focusing on delegation.
 

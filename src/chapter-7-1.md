@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Delegation
-====================================================================================================
 
 Managing resistance to delegation is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore common sources of resistance to delegation and strategies for addressing them.
 

@@ -1,5 +1,3 @@
-Identifying Opportunities to Delegate
-===================================================================================
 
 Maximizing your delegation skills is critical for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will explore strategies for identifying opportunities to delegate.
 

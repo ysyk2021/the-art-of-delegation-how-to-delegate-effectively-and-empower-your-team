@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Delegation
-==============================================================================
 
 Effective delegation requires a deep understanding of your personal approach to delegation. In this chapter, we will explore strategies for assessing your personal approach to delegation and identifying areas for improvement.
 
