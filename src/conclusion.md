@@ -1,5 +1,4 @@
 
-
 Effective delegation is a critical skill for building strong, effective teams and achieving shared goals and objectives. In this chapter, we will recap key strategies for effective delegation and provide final thoughts and advice.
 
 Recap of Key Strategies for Effective Delegation
