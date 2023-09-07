@@ -10,3 +10,7 @@ We also examine common challenges and pitfalls associated with delegation, inclu
 Whether you manage a small team or lead a large organization, effective delegation is a critical skill for success. In the following chapters, we delve deeper into the principles and practices of effective delegation and offer practical guidance for building this critical skill. Whether you are a new manager or a seasoned executive, this book provides a comprehensive guide to delegating effectively and empowering your team to achieve better results.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
