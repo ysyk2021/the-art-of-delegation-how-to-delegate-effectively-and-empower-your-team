@@ -1,5 +1,4 @@
-Chapter 13: Encouraging Proactive Delegation Across the Organization
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging proactive delegation across the organization as a means to enhance delegation effectiveness and empower your team. By fostering a culture of proactive delegation, you can distribute tasks and responsibilities more effectively, tap into the diverse skills and strengths of your team members, and drive innovation and growth.
 

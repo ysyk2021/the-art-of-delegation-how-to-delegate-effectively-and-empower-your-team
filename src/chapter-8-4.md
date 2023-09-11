@@ -1,5 +1,4 @@
-Chapter 10: Celebrating Delegation-Based Achievements
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating delegation-based achievements and how it contributes to team motivation, engagement, and a culture of empowerment. Acknowledging and appreciating the successful outcomes of delegation not only boosts morale but also reinforces the value of effective delegation practices. By incorporating celebrations into your delegation approach, you can create a positive and rewarding environment that encourages continuous growth and success.
 

@@ -1,5 +1,4 @@
-Chapter 6: Avoiding Information Overload
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of avoiding information overload in delegation. Information overload can hinder effective delegation and overwhelm team members, leading to decreased productivity and performance. By mastering strategies to manage and streamline information, leaders can ensure that communication remains clear, relevant, and efficient throughout the delegation process.
 

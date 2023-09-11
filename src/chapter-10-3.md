@@ -1,5 +1,4 @@
-Chapter 5: Continuous Learning and Improvement
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuous learning and improvement in the delegation process. Embracing a mindset of continuous learning enables leaders to adapt to changing circumstances, enhance their delegation skills, and empower team members to reach new levels of growth and success. By cultivating a culture of continuous learning and improvement, leaders can optimize delegation practices and foster a high-performance team.
 

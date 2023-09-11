@@ -1,5 +1,4 @@
-Chapter 2: Communicating Clearly and Effectively
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of clear and effective communication in the delegation process. Effective communication is vital for successful delegation, as it ensures that tasks are clearly understood, expectations are set, and feedback is provided. By mastering the art of communicating clearly and effectively, leaders can empower their team members, foster a collaborative environment, and achieve desired outcomes.
 

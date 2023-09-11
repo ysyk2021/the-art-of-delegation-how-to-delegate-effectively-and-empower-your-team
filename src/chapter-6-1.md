@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Principles of Effective Delegation
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the principles of effective delegation and how they can empower your team to achieve success. Delegation is a crucial skill for leaders as it allows them to distribute tasks, responsibilities, and decision-making authority to team members, ultimately fostering growth, efficiency, and collaboration.
 

@@ -1,5 +1,4 @@
-Chapter 11: Providing Training and Professional Development Opportunities
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the importance of providing training and professional development opportunities as a means to enhance delegation effectiveness and empower your team. Investing in the growth and skill development of your team members not only improves their capabilities but also enables them to take on delegated tasks with confidence and excel in their roles. By prioritizing training and professional development, you create a culture of continuous learning and support, fostering a high-performing and empowered team.
 

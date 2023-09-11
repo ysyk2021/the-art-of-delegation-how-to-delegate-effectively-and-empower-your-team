@@ -1,5 +1,4 @@
-Chapter 7: Identifying Delegation Technologies and Resources
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of identifying delegation technologies and resources to enhance the effectiveness of delegation. Leveraging appropriate tools and resources can streamline communication, improve coordination, and empower team members to accomplish their delegated tasks efficiently. By staying informed about available technologies and resources, leaders can make informed decisions that optimize delegation processes and maximize team performance.
 

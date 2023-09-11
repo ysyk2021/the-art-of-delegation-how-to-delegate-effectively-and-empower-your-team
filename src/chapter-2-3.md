@@ -1,5 +1,4 @@
-Chapter 5: Assessing Your Personal Approach to Delegation
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into assessing your personal approach to delegation and understanding how it impacts your team's empowerment and overall effectiveness. Self-reflection and evaluation of your delegation style are crucial for identifying areas of improvement and refining your approach to delegation.
 

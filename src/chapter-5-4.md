@@ -1,5 +1,4 @@
-Chapter 4: Fostering Trust and Empowerment
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of trust and empowerment in effective delegation. Building trust and empowering team members are essential ingredients for successful delegation, as they create an environment of collaboration, accountability, and growth. By mastering the art of fostering trust and empowerment, leaders can unleash the full potential of their team and achieve exceptional results.
 

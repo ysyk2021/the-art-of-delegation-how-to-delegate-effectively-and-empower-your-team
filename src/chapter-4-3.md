@@ -1,5 +1,4 @@
-Chapter 8: Analyzing the Impact of Delegation on Individuals and Organizations
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the impact of delegation on individuals and organizations. Effective delegation not only empowers individual team members but also plays a significant role in driving organizational success and growth.
 

@@ -1,5 +1,4 @@
-Chapter 9: Using Technology to Enhance Your Delegation Experience
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful role of technology in enhancing the delegation experience. Technology has revolutionized the way we work and communicate, offering a wide range of tools and platforms that can streamline delegation processes, improve efficiency, and empower both leaders and team members. By leveraging technology effectively, leaders can optimize their delegation practices and create an environment conducive to success.
 

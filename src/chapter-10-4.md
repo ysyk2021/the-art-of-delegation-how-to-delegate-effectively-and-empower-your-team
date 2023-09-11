@@ -1,5 +1,4 @@
-Chapter 8: Adapting to Changes in the Workplace
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting to changes in the workplace when practicing effective delegation. The ability to navigate and embrace change is essential for leaders who aim to empower their team members and maintain high performance in dynamic environments. By developing strategies to adapt to changes, leaders can effectively delegate responsibilities, foster resilience, and drive success even in the face of uncertainty.
 

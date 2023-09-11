@@ -1,5 +1,4 @@
-Chapter 12: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering knowledge sharing and mentorship as a means to enhance delegation effectiveness and empower your team. By creating a culture that encourages knowledge exchange and mentorship, you can tap into the collective wisdom and experience of your team members, promoting continuous learning, growth, and success.
 

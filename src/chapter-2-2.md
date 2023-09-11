@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Science Behind Delegation
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the science behind delegation and how understanding the psychological and organizational aspects can inform effective delegation practices. Delving into the science behind delegation allows us to gain insights into human behavior, motivation, and productivity, enabling us to optimize the delegation process for empowering our team members and achieving desired outcomes.
 

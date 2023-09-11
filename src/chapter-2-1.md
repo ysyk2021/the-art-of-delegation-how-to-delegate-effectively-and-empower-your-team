@@ -1,5 +1,4 @@
-Chapter 1: Overview of Delegation
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of delegation and its significance in empowering your team and achieving organizational success. Delegation is the process of entrusting tasks, responsibilities, and decision-making authority to others, allowing leaders to focus on higher-level responsibilities while developing the skills and capabilities of their team members.
 
